@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- 📫 How to reach me: rishabh.singhal@research.iiit.ac.in
+- 📫 How to reach me: rishabhsinghal.im@gmail.com
